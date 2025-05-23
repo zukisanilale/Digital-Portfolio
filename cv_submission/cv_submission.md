@@ -15,4 +15,5 @@ I reviewed the feedback and knowledge gained from the CV quiz and earlier exerci
 
 R – Result:
 I successfully submitted a polished, professional CV that reflects my current strengths, experiences, and career goals. This process not only helped me gain confidence in presenting myself to employers but also prepared me to adapt my CV for different roles in the future.
+
 ---
